@@ -12,3 +12,7 @@ KEY HIGHLIGHTS:
 9. Exit Interviews : Understanding reasons behind attrition is vital.
 10. Organizational Commitment : Addressing issues promotes a positive workplace.
 11. Targeted Strategies : Adaptation and targeted efforts minimize attrition and boost satisfaction
+
+PDF LINK :https://drive.google.com/file/d/1VXhqdrFohgNS_3qGq_ev-9CFJ6V9nhk9/view?usp=sharing
+
+EXCEL LINK: https://docs.google.com/spreadsheets/d/1g93MUMKbuNvuweWAw9Ez-KGFVTxZ_J7Z/edit?usp=sharing&ouid=116364298270625009693&rtpof=true&sd=true
